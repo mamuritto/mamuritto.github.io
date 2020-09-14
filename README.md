@@ -1,2 +1,2 @@
-# mamuritto.github.io
+# Япония
 Сайт про Японию
